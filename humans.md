@@ -9,7 +9,10 @@
 
 ### Participants
 
-* 
+* Evangeline Corcoran
+* Man Luo 
+* Beth Nichols
+* Fernando Benitez | mbenitezp
 * 
 * 
 * 
